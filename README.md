@@ -1,1 +1,0 @@
-# Rutucan-s-Corner
